@@ -11,3 +11,7 @@ Every human likes to spend but scared to count the expenses. We are always excit
 
 _**Let's dive deep in to [https://expenseexposer.wrldfm.com](https://expenseexposer.wrldfm.com) and see some graphics, cute images to cherish your income tracks.**_
 
+
+Welcome to the world of important calulations.
+
+Who doesn't like to calculate the income !?  and at the same time, worry about their upcoming expenses!!
